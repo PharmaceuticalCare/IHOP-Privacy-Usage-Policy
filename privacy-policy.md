@@ -35,6 +35,9 @@ In order for the administration to be able to help the user protect their person
 
 
 1-Call the administration immediately when there is doubt as to someone having access to their private information or any other private information.
+
 ihopevent@gmail.com 
+
 2-Not to give private information through the phone or the internet to an unidentified person or entity that receives the information.
+
 3-Update the contact number on the platform in the event of replacing the old number.
